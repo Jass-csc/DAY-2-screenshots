@@ -12,9 +12,6 @@ I am Jaskiran kaur from department of 'COMPUTER SCIENCE ENGINEERING'.
 ![WhatsApp Image 2025-06-27 at 6 05 34 AM](https://github.com/user-attachments/assets/38bc0f34-37a4-4b56-868d-113a56c1a4f3)
 ![WhatsApp Image 2025-06-27 at 6 05 51 AM](https://github.com/user-attachments/assets/00e34b31-c89d-4d5e-b171-de1bdf256780)
 
-[WhatsApp Image 2025-06-27 at 6 06 ![WhatsApp Image 2025-06-27 at 6 06 09 AM(1)](https://github.com/user-attachments/assets/c03ae130-41e1-481f-bad8-ef5f218570d5)
-(https://github.com/user-attachments/assets/09efaa17-52bb-45cb-8ff7-7e2868645bda)
-740a)
 ![WhatsApp Image 2025-06-27 at 6 06 28 AM](https://github.com/user-attachments/assets/e8379adb-6da9-4dbb-882e-619021ec65c5)
 
 
