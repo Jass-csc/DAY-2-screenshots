@@ -13,10 +13,10 @@ I am Jaskiran kaur from department of 'COMPUTER SCIENCE ENGINEERING'.
 ![WhatsApp Image 2025-06-27 at 6 05 51 AM](https://github.com/user-attachments/assets/00e34b31-c89d-4d5e-b171-de1bdf256780)
 
 [WhatsApp Image 2025-06-27 at 6 06 ![WhatsApp Image 2025-06-27 at 6 06 09 AM(1)](https://github.com/user-attachments/assets/c03ae130-41e1-481f-bad8-ef5f218570d5)
-50 AM](https://github.com/user-attachments/assets/09efaa17-52bb-45cb-8ff7-7e2868645bda)
+(https://github.com/user-attachments/assets/09efaa17-52bb-45cb-8ff7-7e2868645bda)
 740a)
 ![WhatsApp Image 2025-06-27 at 6 06 28 AM](https://github.com/user-attachments/assets/e8379adb-6da9-4dbb-882e-619021ec65c5)
 
-here is the overview of all commands.
+
 ![WhatsApp Image 2025-06-27 at 6 26 25 AM](https://github.com/user-attachments/assets/2f52f922-6695-4318-8ee1-9ea65ce56408)
 ![WhatsApp Image 2025-06-27 at 6 26 37 AM](https://github.com/user-attachments/assets/e6979b51-3745-4d72-9c68-632a0da0d789)
